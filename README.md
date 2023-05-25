@@ -1,1 +1,2 @@
-I was Completed My Study in Bsc. so that's Why I was Submited my Work.
+I was Completed My Study in Bsc.
+whine study data entry course under PMKVY skim at NIELIT Daman We submittedexal dashboard project.
